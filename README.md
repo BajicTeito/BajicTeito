@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @BajicTeito
+- 👀 I’m interested in making money!
